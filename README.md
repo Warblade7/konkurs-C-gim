@@ -1,0 +1,1 @@
+# konkurs-C-gim
